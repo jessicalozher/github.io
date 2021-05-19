@@ -1,2 +1,2 @@
-# jessicalozhergithub.io
+# jessicalozher.github.io
 TRABAJO DE SEGUNDO DE BACH SOBRE RIHANNA
